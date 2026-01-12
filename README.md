@@ -1,0 +1,1 @@
+# magiCAL
